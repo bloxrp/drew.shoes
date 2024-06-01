@@ -1,2 +1,0 @@
-# drew.shoes
-drew.shoes
